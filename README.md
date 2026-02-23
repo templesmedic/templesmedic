@@ -1,16 +1,24 @@
-## Hi there 👋
+<div align="center">
+<table border="0">
+    <td style="vertical-align: middle;">
+      <p><b>
+      </div>
 
-<!--
-**templesmedic/templesmedic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<div align="center">
+   <img src="https://file.garden/aW26Bw2LYQfOzvvc/tumblr_82f5585bfd6383a73f8a1097617b348e_68cc587f_1280%20(1).png" width="260" alt="Left">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+$\text{\color{#c4c0bf}medkit 〳 kit⠀━⠀19⠀she〳he }$\
+$\text{\color{#77927a}c+h welcome , w2i always pls}$\
+$\text{\color{#308068}ac - trixxical + solotonin + ebitenoisii}$
+\
+[ⅰ . rentry](https://rentry.co/subkiiting) [ⅱ . twitter](https://x.com/madtraitor_) [ⅲ . github](https://guns.lol/medtraitor)
+
+<img src="https://komarev.com/ghpvc/?username=templesmedic&label=patients&color=308068&style=plastic"> </p>
+</sub>
+<div align="center">
+</div></b></p>
+    </td>
+  </tr>
+</table>
+</div>
