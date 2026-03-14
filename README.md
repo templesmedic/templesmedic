@@ -9,7 +9,7 @@ $\text{\color{#950000}physment ill⠀﹋⠀ss subs yume}$\
 $\text{\color{#950000}c+h welcome , w2i always pls}$\
 $\text{\color{#950000}ac - HUEBLV}$
 \
-[ⅰ . rentry](https://rentry.co/subkiiting) [ⅱ . twitter](https://x.com/medtraitor_) [ⅲ . gunslol](https://rentry.co/wipd)
+[ⅰ . rentry](https://rentry.co/subkiiting) [ⅱ . twitter](https://x.com/medtraitor_) [ⅲ . carrd](https://medtraitor.carrd.co)
 
 <img src="https://komarev.com/ghpvc/?username=templesmedic&label=Three_Days_Grace&color=950000&style=plastic"> </p>
 
