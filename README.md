@@ -4,7 +4,7 @@
 <div align="center">
   <img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/tumblr_b7a02b6d3481ac088cda6f45ffeb72bb_5d3fd62a_2048%20(2).png" width="260">
 
-$\text{\color{#b7ffe2}MEDKIT / TAHIRA - 19YRS . SHE/HE}$\
+$\text{\color{#b7ffe2}MEDKIT / DOVE - 19YRS . SHE/HE}$\
 $\text{\color{#a5ff3f}FREYJA YUME . PHYSMENT DISABLED}$\
 $\text{\color{#ed002b}TRANSFEM LESBIAN C+H ALWAYS}$\
 $\text{\color{#3a2737}AC1 - fish-ofillet}$\
